@@ -1,0 +1,2 @@
+# Lucky
+Bsc computer science 
