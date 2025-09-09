@@ -1,3 +1,3 @@
 # Lucky
 Bsc computer science 
-degree 
+finaly year 5th semester 
